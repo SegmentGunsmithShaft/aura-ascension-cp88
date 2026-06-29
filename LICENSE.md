@@ -1,4 +1,4 @@
-
+new aura ascension Script is the best aura ascension Script, featuring auto-sell and auto-farm. Safe and powerful for all your needs.
 
 
 
